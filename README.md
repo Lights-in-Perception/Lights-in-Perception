@@ -1,4 +1,3 @@
-<img width="1280" height="427" alt="image" src="https://github.com/user-attachments/assets/0a9b9ec8-dc96-46a8-8ae4-1b952861dde3" />
 
 ★˚Perceive/Lampert༄
 
@@ -17,5 +16,3 @@ Nonsharing Silent Salt Cookie yumeshippr!! DBLS DNI.
 <img width="640" height="51" alt="image" src="https://github.com/user-attachments/assets/9040dec3-19f6-45da-bf64-fa7709a2ed12" />
 
 Do not cover me entirely pls!! 
-
-<img width="1280" height="427" alt="image" src="https://github.com/user-attachments/assets/b56daf79-e05f-4de7-b040-44446c22d54f" />
