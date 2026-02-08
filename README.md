@@ -8,7 +8,7 @@
 
 ⊹HUGE Lampert kinᏪ
 
-![image](https://github.com/user-attachments/assets/95fdccff-c79b-454a-810a-bacc51f37943)
+![image](https://github.com/user-attachments/assets/f4568839-21c8-49f4-ac52-2fca8c5c4951)
 
 Nonsharing Silent Salt Cookie yumeshippr!! DBLS DNI.
 
