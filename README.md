@@ -10,7 +10,8 @@
 
 ![image](https://github.com/user-attachments/assets/f4568839-21c8-49f4-ac52-2fca8c5c4951)
 
-![image](https://github.com/user-attachments/assets/9a46cff0-18b7-43ad-8e48-2dc624f9351e)![image](https://github.com/user-attachments/assets/9a46cff0-18b7-43ad-8e48-2dc624f9351e)
+<img width="640" height="82" alt="image" src="https://github.com/user-attachments/assets/2f922fca-989c-4f9d-8ceb-80d2f300f94f" />
+
 
 Nonsharing Silent Salt Cookie yumeshippr!! DBLS DNI.
 
