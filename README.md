@@ -3,17 +3,14 @@
 
 ★˚Perceive/Lampert༄
 
-<img width="640" height="52" alt="image" src="https://github.com/user-attachments/assets/26b11618-7107-4e5b-a5b1-52080781a928" />
-
+<img width="1024" height="200" alt="image" src="https://github.com/user-attachments/assets/85c64c36-6061-48aa-a428-d473d889a156" />
 
 ✦They/Them✧
 
 ⊹HUGE Lampert kinᏪ
 
 ![image](https://github.com/user-attachments/assets/604120fb-46a3-4c78-b3b5-067a9af4a8e9)
-
-
-![image](https://github.com/user-attachments/assets/7b2ec08d-158b-4b79-a99b-7dfcccc49e98)
+<img width="1024" height="200" alt="image" src="https://github.com/user-attachments/assets/03288a75-4915-43d4-b66c-95ca41061c1d" />
 
 
 Nonsharing Silent Salt Cookie yumeshippr!! DBLS DNI.
