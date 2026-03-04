@@ -2,13 +2,15 @@
 
 ![image](https://github.com/user-attachments/assets/86ed273a-0ac9-423b-a889-b45b104bf2be)
 
-★˚Perceive/Lampert༄
+★˚Perceive/Lampert/NULL༄
 
 <img width="1024" height="200" alt="image" src="https://github.com/user-attachments/assets/85c64c36-6061-48aa-a428-d473d889a156" />
 
 ✦They/Them✧
 
-⊹HUGE Lampert kinᏪ
+⊹HUGE Lampert & NULL kinnieᏪ
+
+༅Astronomy nerd☆
 
 ![image](https://github.com/user-attachments/assets/604120fb-46a3-4c78-b3b5-067a9af4a8e9)
 <img width="1024" height="200" alt="image" src="https://github.com/user-attachments/assets/03288a75-4915-43d4-b66c-95ca41061c1d" />
