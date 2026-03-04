@@ -14,7 +14,8 @@
 
 Nonsharing Silent Salt Cookie yumeshippr!! DBLS DNI.
 
-<img width="640" height="51" alt="image" src="https://github.com/user-attachments/assets/9040dec3-19f6-45da-bf64-fa7709a2ed12" />
+<img width="640" height="58" alt="image" src="https://github.com/user-attachments/assets/ffc5db86-0c43-414f-899e-9539b53ba80f" />
+
 
 Do not cover me entirely pls!! 
 <img width="1280" height="427" alt="image" src="https://github.com/user-attachments/assets/415c2b97-74d7-41c7-a31f-d8891ff819aa" />
