@@ -10,7 +10,8 @@
 
 ⊹HUGE Lampert kinᏪ
 
-![image](https://github.com/user-attachments/assets/e2d4830d-3baf-4443-8a29-0386dfc77e65)
+![image](https://github.com/user-attachments/assets/604120fb-46a3-4c78-b3b5-067a9af4a8e9)
+
 
 ![image](https://github.com/user-attachments/assets/7b2ec08d-158b-4b79-a99b-7dfcccc49e98)
 
