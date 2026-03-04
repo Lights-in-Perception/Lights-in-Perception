@@ -1,22 +1,24 @@
-<img width="1280" height="427" alt="image" src="https://github.com/user-attachments/assets/82815c33-8df1-49c6-8898-e1856bc91229" />
+<img width="640" height="185" alt="image" src="https://github.com/user-attachments/assets/56505616-a3ec-4140-a752-ab26d28b708c" />
+
 
 ★˚Perceive/Lampert༄
 
-![image](https://github.com/user-attachments/assets/fca8acf5-57bf-43ec-9c92-49ef5161fecb)
+<img width="640" height="52" alt="image" src="https://github.com/user-attachments/assets/26b11618-7107-4e5b-a5b1-52080781a928" />
+
 
 ✦They/Them✧
 
 ⊹HUGE Lampert kinᏪ
 
-![image](https://github.com/user-attachments/assets/f4568839-21c8-49f4-ac52-2fca8c5c4951)
+![image](https://github.com/user-attachments/assets/e2d4830d-3baf-4443-8a29-0386dfc77e65)
 
-<img width="640" height="82" alt="image" src="https://github.com/user-attachments/assets/2f922fca-989c-4f9d-8ceb-80d2f300f94f" />
+![image](https://github.com/user-attachments/assets/7b2ec08d-158b-4b79-a99b-7dfcccc49e98)
 
 
 Nonsharing Silent Salt Cookie yumeshippr!! DBLS DNI.
 
-<img width="640" height="58" alt="image" src="https://github.com/user-attachments/assets/ffc5db86-0c43-414f-899e-9539b53ba80f" />
+![image](https://github.com/user-attachments/assets/86ed273a-0ac9-423b-a889-b45b104bf2be)
 
 
 Do not cover me entirely pls!! 
-<img width="1280" height="427" alt="image" src="https://github.com/user-attachments/assets/415c2b97-74d7-41c7-a31f-d8891ff819aa" />
+<img width="640" height="191" alt="image" src="https://github.com/user-attachments/assets/5ed927fa-dfe2-4994-ad0e-81de48736778" />
