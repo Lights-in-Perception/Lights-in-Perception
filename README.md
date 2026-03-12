@@ -8,7 +8,7 @@
 
 ✦They/Them✧
 
-⊹HUGE Null kinnieᏪ
+⊹HUGE Null & Lampert kinnieᏪ
 
 ༅Astronomy nerd☆
 
