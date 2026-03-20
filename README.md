@@ -2,7 +2,7 @@
 
 ![image](https://github.com/user-attachments/assets/86ed273a-0ac9-423b-a889-b45b104bf2be)
 
-★˚Perceive/Null༄
+★˚Null༄
 
 <img width="1024" height="200" alt="image" src="https://github.com/user-attachments/assets/85c64c36-6061-48aa-a428-d473d889a156" />
 
