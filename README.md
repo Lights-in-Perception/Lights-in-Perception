@@ -18,6 +18,8 @@
 
 Nonsharing Silent Salt Cookie and Attendant yumeshippr!! DBLS DNI!! 
 
+Silentfaerie/lily also DNI
+
 Do not cover me entirely pls!! 
 
 ![image](https://github.com/user-attachments/assets/86ed273a-0ac9-423b-a889-b45b104bf2be)
