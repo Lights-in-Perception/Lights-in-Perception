@@ -15,6 +15,7 @@
 ![image](https://github.com/user-attachments/assets/604120fb-46a3-4c78-b3b5-067a9af4a8e9)
 <img width="1024" height="200" alt="image" src="https://github.com/user-attachments/assets/03288a75-4915-43d4-b66c-95ca41061c1d" />
 
+Together since 05/04/2025 <3
 
 Nonsharing Silent Salt Cookie and Attendant yumeshippr!! DBLS DNI!! 
 
