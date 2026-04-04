@@ -17,7 +17,7 @@
 
 Together since 05/04/2025 <3
 
-Nonsharing Silent Salt Cookie and Attendant yumeshippr!! DBLS DNI!! 
+Nonsharing Silent Salt Cookie, Dally Winston, and Attendant yumeshippr!! DBLS DNI!! 
 
 Silentfaerie/lily also DNI
 
